@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Android , MEARN**
 
-- 📫 How to reach me **rajdadia88@gmail.com**
+- 📫 How to reach me **raj.h.dadia@gmail.com**
 
 - ⚡ Fun fact **I am funny**
 
